@@ -1,7 +1,7 @@
-### Hi there 👋
+### Hi there! 👋🏻
 
 
-**wonderw0man/wonderw0man** is a ✨ _special_ ✨ blog of WonderW0man. (Can you believe? :p)
+**wonderw0man/wonderw0man** is a ✨ _special_ ✨ blog of ***Wonder Woman***. (Can you believe? :p)
 
 
 - 🔭 I’m currently working on creating a data science portfolio.

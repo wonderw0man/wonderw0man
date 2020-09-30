@@ -14,7 +14,7 @@
 
 - 💬 Ask me about umm Nothing. plEASE
 
-- 📫 How to reach me: Nah🙄! I mostly fly from earth to mars. So its imposibble. Sorry ya! :(
+- 📫 How to reach me: Nah🙄! I mostly fly from earth to mars. So its imposibble. Sorry ya!🙁
 
 - 😄 Pronouns: I like space .. btw its not a pronoun :p
 

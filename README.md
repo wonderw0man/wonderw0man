@@ -6,7 +6,7 @@
 
 - 🔭 I’m currently working on creating a data science portfolio.
 
-- 🌱 I’m currently learning Python, C, HTML, CSS, JS
+- 🌱 I’m currently learning Python, C, HTML, CSS, JS and many more.👻
 
 - 👯 I’m looking to collaborate on OpenSource projects.
 
